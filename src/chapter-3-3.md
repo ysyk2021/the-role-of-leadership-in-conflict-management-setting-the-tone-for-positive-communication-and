@@ -1,5 +1,4 @@
-Chapter 3: Leadership Styles in Conflict Management: Adapting Leadership Style to Address Specific Conflicts
-============================================================================================================
+# Adapting Leadership Style to Address Specific Conflicts
 
 In this chapter, we will discuss the importance of adapting leadership style to address specific conflicts. Different types of conflicts require different leadership styles, and leaders who can adapt their style to fit the situation are more likely to resolve conflicts effectively.
 

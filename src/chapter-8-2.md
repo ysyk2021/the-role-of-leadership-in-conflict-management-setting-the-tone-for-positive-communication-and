@@ -1,5 +1,4 @@
-Chapter 8: Measuring and Evaluating Leadership Effectiveness in Conflict Management: Evaluating Individual and Organizational Performance
-=========================================================================================================================================
+# Evaluating Individual and Organizational Performance
 
 In this chapter, we will discuss how to measure and evaluate individual and organizational performance in conflict management. Effective conflict management is critical to creating a positive work environment and promoting collaboration among team members.
 

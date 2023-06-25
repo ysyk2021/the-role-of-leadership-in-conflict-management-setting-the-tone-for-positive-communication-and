@@ -1,5 +1,4 @@
-Chapter 4: Building a Culture of Positive Communication: Techniques for Building Positive Communication within Teams
-====================================================================================================================
+# Techniques for Building Positive Communication within Teams
 
 In this chapter, we will discuss techniques for building positive communication within teams. Effective communication is critical to managing conflicts and creating a positive work environment. By fostering positive communication, leaders can build trust, encourage collaboration, and create a culture of respect and inclusivity within their teams.
 

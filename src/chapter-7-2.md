@@ -1,5 +1,4 @@
-Chapter 7: Addressing Systemic Workplace Issues: Identifying and Addressing Bias and Discrimination
-===================================================================================================
+# Identifying and Addressing Bias and Discrimination
 
 In this chapter, we will discuss how to identify and address bias and discrimination in the workplace. Bias and discrimination can be systemic issues that negatively impact employee morale, productivity, and retention.
 

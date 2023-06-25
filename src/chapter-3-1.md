@@ -1,5 +1,4 @@
-Chapter 3: Leadership Styles in Conflict Management: Different Approaches to Conflict Management
-================================================================================================
+# Different Approaches to Conflict Management
 
 In this chapter, we will discuss different approaches to conflict management and the role of leadership in implementing these approaches. Effective conflict management is critical to creating a positive work environment and promoting collaboration among team members.
 

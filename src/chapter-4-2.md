@@ -1,5 +1,4 @@
-Chapter 4: Building a Culture of Positive Communication: Fostering Trust and Respect
-====================================================================================
+# Fostering Trust and Respect
 
 In this chapter, we will discuss the importance of building a culture of positive communication in conflict management. We will explore strategies that leaders can use to foster trust and respect within their organizations.
 

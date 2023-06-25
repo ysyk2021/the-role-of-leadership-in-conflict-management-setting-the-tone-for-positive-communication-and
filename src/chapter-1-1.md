@@ -1,5 +1,4 @@
-Chapter 1: Introduction: Defining Leadership and Conflict Management
-====================================================================
+# Defining Leadership and Conflict Management
 
 In this chapter, we will define leadership and conflict management and discuss their importance in creating a positive work environment.
 

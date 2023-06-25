@@ -1,5 +1,4 @@
-Chapter 6: Managing Difficult Conversations: Navigating Resistance and Pushback
-===============================================================================
+# Navigating Resistance and Pushback
 
 In this chapter, we will discuss how to manage difficult conversations and navigate resistance and pushback. Difficult conversations may involve sensitive topics, conflicting opinions, or emotional reactions. Effective conflict management requires leaders to be able to manage these conversations in a way that promotes positive communication and collaboration.
 

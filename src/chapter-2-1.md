@@ -1,5 +1,4 @@
-Chapter 2: Overview of Conflict Management: Different Types of Workplace Conflict
-=================================================================================
+# Different Types of Workplace Conflict
 
 In this chapter, we will discuss the different types of workplace conflicts that can arise and the importance of understanding them for effective conflict management.
 

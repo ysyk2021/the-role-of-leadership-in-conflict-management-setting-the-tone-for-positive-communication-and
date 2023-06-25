@@ -1,5 +1,4 @@
-Chapter 7: Addressing Systemic Workplace Issues: Cultivating a Diverse and Inclusive Workforce
-==============================================================================================
+# Cultivating a Diverse and Inclusive Workforce
 
 In this chapter, we will discuss the importance of cultivating a diverse and inclusive workforce in effective conflict management. We will explore strategies that leaders can use to address systemic workplace issues and create a more inclusive work environment.
 

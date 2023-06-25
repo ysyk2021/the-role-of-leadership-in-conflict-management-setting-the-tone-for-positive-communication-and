@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Conflict Resolution: Active Listening and Empathy
-===========================================================================
+# Active Listening and Empathy
 
 In this chapter, we will discuss two important strategies for conflict resolution: active listening and empathy. These techniques are critical to effective communication and collaboration in conflict management.
 

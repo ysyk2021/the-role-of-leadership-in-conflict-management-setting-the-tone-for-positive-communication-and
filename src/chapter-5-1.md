@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Conflict Resolution: Techniques for Resolving Workplace Conflicts
-===========================================================================================
+# Techniques for Resolving Workplace Conflicts
 
 In this chapter, we will discuss different techniques for resolving workplace conflicts. Effective conflict resolution is critical to creating a positive work environment and promoting collaboration among team members.
 

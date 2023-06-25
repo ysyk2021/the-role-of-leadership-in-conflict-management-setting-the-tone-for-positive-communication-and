@@ -1,5 +1,4 @@
-Chapter 6: Managing Difficult Conversations: Addressing Sensitive Topics with Sensitivity and Tact
-==================================================================================================
+# Addressing Sensitive Topics with Sensitivity and Tact
 
 In this chapter, we will focus on addressing sensitive topics with sensitivity and tact during difficult conversations. Leaders must be equipped to handle sensitive topics such as discrimination, harassment, or performance issues effectively and respectfully.
 
