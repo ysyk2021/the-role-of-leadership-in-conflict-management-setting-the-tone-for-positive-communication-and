@@ -1,5 +1,3 @@
-The Importance of Leadership in Conflict Management for Organizational Success
-=========================================================================================
 
 Effective conflict management plays a crucial role in the success of any organization. In this chapter, we will explore the significance of leadership in conflict management and its impact on fostering positive communication and collaboration within the organization.
 

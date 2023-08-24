@@ -1,5 +1,3 @@
-Fostering Trust and Respect
-====================================
 
 Creating a foundation of trust and respect is crucial for effective conflict management. This chapter explores strategies that leaders can employ to foster trust and respect within the team, setting the tone for positive communication and collaboration.
 

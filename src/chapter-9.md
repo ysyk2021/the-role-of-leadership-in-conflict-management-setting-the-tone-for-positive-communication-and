@@ -1,5 +1,3 @@
-Chapter 9: Conclusion
-=====================
 
 In this book, we have explored the importance of leadership in conflict management and its role in creating a positive work environment. We have discussed different types of workplace conflicts, benefits and challenges of conflict management, and techniques for overcoming common conflict management challenges.
 

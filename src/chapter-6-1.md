@@ -1,5 +1,3 @@
-Techniques for Managing Difficult Conversations
-========================================================
 
 Difficult conversations are inevitable in conflict management situations. This chapter explores techniques that leaders can employ to effectively manage difficult conversations, foster positive communication, and promote collaboration within the team.
 

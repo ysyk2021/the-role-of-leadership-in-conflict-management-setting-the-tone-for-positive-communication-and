@@ -1,5 +1,3 @@
-Adapting Leadership Style to Address Specific Conflicts
-==================================================================
 
 In order to effectively manage conflicts, leaders need to adapt their leadership style to the specific context and nature of the conflict at hand. This chapter explores how leaders can adjust their leadership approach to address various types of conflicts and promote positive communication and collaboration.
 

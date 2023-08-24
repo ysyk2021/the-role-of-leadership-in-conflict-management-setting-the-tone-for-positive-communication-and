@@ -1,5 +1,3 @@
-Navigating Resistance and Pushback
-===========================================
 
 In any conflict management situation, leaders may encounter resistance and pushback from team members. This chapter explores strategies and approaches that leaders can employ to navigate resistance effectively, foster open communication, and promote collaboration within the team.
 

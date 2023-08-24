@@ -1,5 +1,3 @@
-Techniques for Addressing Systemic Workplace Issues
-==============================================================
 
 Addressing systemic workplace issues is an important responsibility of leaders in conflict management. This chapter explores various techniques and strategies that leaders can employ to identify, address, and resolve systemic issues within the organization, fostering positive communication and collaboration.
 

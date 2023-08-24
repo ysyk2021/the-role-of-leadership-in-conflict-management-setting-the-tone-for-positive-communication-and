@@ -1,5 +1,3 @@
-Chapter 7: Addressing Systemic Workplace Issues
-===============================================
 
 In this chapter, we will discuss how to address systemic workplace issues. Systemic workplace issues are problems that are deeply ingrained in the organization's culture, policies, and practices. These issues can include discrimination, harassment, unfair treatment, and lack of diversity and inclusion.
 

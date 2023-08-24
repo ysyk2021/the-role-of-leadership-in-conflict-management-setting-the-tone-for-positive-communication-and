@@ -1,5 +1,3 @@
-Evaluating Individual and Organizational Performance
-===============================================================
 
 In this chapter, we will discuss the importance of evaluating individual and organizational performance in the context of leadership's role in conflict management. Effective evaluation processes play a vital role in measuring the success of conflict management strategies and fostering a culture of accountability and continuous improvement.
 

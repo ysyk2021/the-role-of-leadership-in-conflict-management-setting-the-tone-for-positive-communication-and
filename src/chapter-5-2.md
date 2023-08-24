@@ -1,5 +1,3 @@
-Active Listening and Empathy
-=======================================
 
 Active listening and empathy are crucial skills for leaders in conflict management. This chapter explores the significance of active listening and empathy, their impact on positive communication and collaboration, and techniques to enhance these skills.
 

@@ -1,5 +1,3 @@
-Defining Leadership and Conflict Management
-======================================================
 
 In order to understand the role of leadership in conflict management and its impact on setting the tone for positive communication and collaboration, it is essential to define the concepts of leadership and conflict management. This chapter delves into the definitions and explores the key elements of effective leadership and conflict management.
 

@@ -1,5 +1,3 @@
-Chapter 4: Building a Culture of Positive Communication
-=======================================================
 
 In this chapter, we will discuss the importance of building a culture of positive communication in conflict management. We will explore techniques for building positive communication within teams and fostering trust and respect among team members.
 

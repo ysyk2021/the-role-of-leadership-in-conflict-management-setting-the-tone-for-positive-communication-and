@@ -1,5 +1,3 @@
-Metrics for Measuring Leadership Effectiveness in Conflict Management
-=================================================================================
 
 In this chapter, we will explore the importance of metrics in measuring leadership effectiveness in conflict management. We will discuss key metrics that can help evaluate and assess leaders' performance in handling conflicts and fostering positive communication and collaboration within the organization.
 

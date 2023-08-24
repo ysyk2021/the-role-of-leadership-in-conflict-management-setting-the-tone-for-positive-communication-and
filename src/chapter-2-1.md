@@ -1,5 +1,3 @@
-Different Types of Workplace Conflict
-================================================
 
 In any organization, conflicts are bound to arise due to various factors such as divergent goals, differing personalities, or limited resources. Understanding the different types of workplace conflict is essential for leaders to effectively manage and resolve these conflicts. This chapter explores some common types of workplace conflict and provides insights into their causes and potential resolution strategies.
 

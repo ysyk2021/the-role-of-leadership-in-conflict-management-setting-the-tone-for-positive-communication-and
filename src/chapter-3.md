@@ -1,5 +1,3 @@
-Chapter 3: Leadership Styles in Conflict Management
-===================================================
 
 In this chapter, we will discuss different approaches to conflict management and the role of leadership in implementing these approaches. We will also explore the importance of identifying personal leadership style in conflict situations and adapting leadership style to address specific conflicts.
 

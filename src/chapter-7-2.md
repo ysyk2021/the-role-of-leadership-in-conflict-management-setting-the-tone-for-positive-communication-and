@@ -1,5 +1,3 @@
-Identifying and Addressing Bias and Discrimination
-=============================================================
 
 In today's diverse and multicultural society, leaders play a critical role in identifying and addressing bias and discrimination within their organizations. This chapter explores the importance of recognizing bias and discrimination, the impact they have on communication and collaboration, and strategies for effectively addressing these issues.
 

@@ -1,5 +1,3 @@
-Encouraging Open Dialogue and Feedback
-===============================================
 
 Open dialogue and feedback are essential components of effective conflict management. This chapter explores strategies that leaders can employ to encourage open dialogue, foster a culture of feedback, and promote collaboration within the team.
 

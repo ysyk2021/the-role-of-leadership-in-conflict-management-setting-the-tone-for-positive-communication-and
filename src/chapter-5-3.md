@@ -1,5 +1,3 @@
-Finding Common Ground and Compromise
-===============================================
 
 One of the essential aspects of effective conflict management is the ability to find common ground and reach compromises that satisfy all parties involved. This chapter explores the strategies and techniques leaders can employ to encourage collaboration and facilitate the process of finding common ground.
 

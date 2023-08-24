@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In this chapter, we will introduce the importance of leadership in conflict management for organizational success and effective communication and collaboration. We will also define leadership and conflict management and their roles in creating a positive work environment.
 

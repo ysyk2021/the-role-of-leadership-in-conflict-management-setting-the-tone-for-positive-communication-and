@@ -1,5 +1,3 @@
-Chapter 6: Managing Difficult Conversations
-===========================================
 
 In this chapter, we will discuss techniques for managing difficult conversations in the workplace. Conflict can arise from differences in opinion, values, or personalities, and leaders must be equipped to handle difficult conversations effectively.
 

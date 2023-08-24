@@ -1,5 +1,3 @@
-Chapter 8: Measuring and Evaluating Leadership Effectiveness in Conflict Management
-===================================================================================
 
 In this chapter, we will discuss the importance of measuring and evaluating leadership effectiveness in conflict management. We will explore metrics that can be used to measure the effectiveness of leaders in managing conflicts within their organizations.
 

@@ -1,5 +1,3 @@
-Chapter 2: Overview of Conflict Management
-==========================================
 
 In this chapter, we will provide an overview of conflict management and its importance in creating a positive work environment. We will also discuss the different types of workplace conflicts, the benefits and challenges of conflict management, and techniques for overcoming common conflict management challenges.
 

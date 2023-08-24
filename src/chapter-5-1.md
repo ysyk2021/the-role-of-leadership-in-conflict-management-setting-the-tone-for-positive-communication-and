@@ -1,5 +1,3 @@
-Techniques for Resolving Workplace Conflicts
-========================================================
 
 In any workplace, conflicts are bound to arise due to differences in perspectives, priorities, and personalities. Effective conflict resolution is a critical skill for leaders to possess in order to maintain a positive and productive work environment. This chapter explores various techniques for resolving workplace conflicts in a fair and constructive manner.
 

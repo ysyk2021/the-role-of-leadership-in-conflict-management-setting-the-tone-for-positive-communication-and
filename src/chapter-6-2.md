@@ -1,5 +1,3 @@
-Addressing Sensitive Topics with Sensitivity and Tact
-==============================================================
 
 Addressing sensitive topics with sensitivity and tact is a crucial aspect of leadership in conflict management. This chapter delves into the challenges leaders face when dealing with sensitive subjects and provides strategies for effectively navigating these conversations, fostering positive communication, and promoting collaboration.
 

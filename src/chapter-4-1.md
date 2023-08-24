@@ -1,5 +1,3 @@
-Techniques for Building Positive Communication within Teams
-====================================================================
 
 Effective communication is the cornerstone of successful conflict management and collaboration within teams. This chapter explores various techniques that leaders can employ to foster positive communication among team members, promoting understanding, trust, and teamwork.
 

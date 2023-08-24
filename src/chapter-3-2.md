@@ -1,5 +1,3 @@
-Identifying Personal Leadership Style in Conflict Situations
-=======================================================================
 
 In order to effectively manage conflicts, leaders must first understand their own leadership style and how it impacts their approach to conflict resolution. This chapter explores the importance of recognizing personal leadership style and provides strategies for identifying and leveraging it in conflict situations.
 
