@@ -1,3 +1,6 @@
+# The Role of Leadership in Conflict Management: Setting the Tone for Positive Communication and Collaboration
+
+Book Link: [https://zhengpublishing.com/the-role-of-leadership-in-conflict-management-setting-the-tone-for-positive-communication-and-collaboration/](https://zhengpublishing.com/the-role-of-leadership-in-conflict-management-setting-the-tone-for-positive-communication-and-collaboration/)
 
 "The Role of Leadership in Conflict Management: Setting the Tone for Positive Communication and Collaboration" is a book that explores the importance of effective leadership in promoting positive communication and collaboration within organizations. By understanding the role of leaders in managing conflicts and building strong teams, readers can learn how to foster a positive work culture and improve productivity.
 
